@@ -13,7 +13,7 @@ sz jnd zcdf Xyxdvpzrx ajkt peeytj?
 ## 🏆 Your Mission:
 Throughout history, great rulers and strategists have used clever methods to encode their messages, ensuring only the right eyes could understand them. Your task is to decipher this hidden message and uncover its true meaning.
 Can you rise to the challenge and unlock the secret?
-Submit your answer once you’ve cracked the code. Only the sharpest minds will succeed. Good luck! 🚀
+Submit your answer in the main-repo once you’ve cracked the code. Only the sharpest minds will succeed. Good luck! 🚀
 
 
 
